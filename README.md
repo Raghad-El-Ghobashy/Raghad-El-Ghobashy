@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Raghad-El-Ghobashy
+- 👋 Hi, I’m Raghad-El-Ghobashy
 - 👀 I’m interested in coffee,cats,cars,tech and DATA
 - 🌱 I’m currently learning data analysis track
 - 📫 How to reach me : via email and phone number
