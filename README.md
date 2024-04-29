@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Raghad-El-Ghobashy
 - 👀 I’m interested in coffee,cats,cars,tech and DATA
 - 🌱 I’m currently learning data analysis track
-- 📫 How to reach me : via email and phone number
+- 📫 How to reach me : via email : raghadashraf6@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm workaholic and morning person
